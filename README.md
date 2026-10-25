@@ -1,4 +1,4 @@
-# Hi, I'm Yaqeen Mumuni 👋
+# Hi, I'm Yaqeen Wunzalgu Mumuni 👋
 
 ### Software Developer | Full-Stack Web Development | Data-Driven Applications
 
